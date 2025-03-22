@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Yoasobisong
 - 👀 I’m interested in ML,DL
 - 🌱 I’m currently learning ML
-- 📫 Gmail: yqs0ong1@gmail.com
+- 📫 e-mail: 3133824384@qq.com
